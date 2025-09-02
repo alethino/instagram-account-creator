@@ -1,3 +1,3 @@
 
-## Telegram @Neo_Galaxy - https://t.me/Neo_Galaxy
-## Telegram @Neo_Galaxy - https://t.me/Neo_Galaxy
+## Telegram @alethino - https://t.me/alethino
+## Telegram @alethino - https://t.me/alethino
